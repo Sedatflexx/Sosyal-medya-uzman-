@@ -1,2 +1,0 @@
-# Sosyal-medya-uzman-
-Sedatflexx
